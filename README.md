@@ -1,0 +1,2 @@
+# qabul-yu
+Qabul yuridik
